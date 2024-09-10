@@ -2,4 +2,4 @@
 - Sou estudante da escola **9 de julho**
 - Tenho *16 anos*
 - Estou no primeiro ano do Ensino Médio
-- ![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftodateen.com.br%2Fnoticias%2Fvoce-vai-poder-usar-gif-whatsapp-breve.phtml&psig=AOvVaw1NcgljC9kgVHfzbWlnLEF7&ust=1726077027082000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJDSuJP4uIgDFQAAAAAdAAAAABAE]]
+- ![https://www.google.com/url?sa=i&url=https%3A%2F%2Ftodateen.com.br%2Fnoticias%2Fvoce-vai-poder-usar-gif-whatsapp-breve.phtml&psig=AOvVaw1NcgljC9kgVHfzbWlnLEF7&ust=1726077027082000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJDSuJP4uIgDFQAAAAAdAAAAABAE]
